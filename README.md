@@ -1,0 +1,1 @@
+# HSR-daily-reward
